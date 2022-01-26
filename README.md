@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @eliminatedlad
+- 👋 Hi, I’m Sreehari R
 - 👀 I’m interested in ... Design stuffs
 - 🌱 I’m currently learning ... figma
 - 💞️ I’m looking to collaborate on ... blender
